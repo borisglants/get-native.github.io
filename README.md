@@ -1,1 +1,1 @@
-get-native.com
+www.get-native.com
